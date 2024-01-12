@@ -1,0 +1,4 @@
+-  Hi, I’m @monicabujdei (Teodora-Monica Bujdei)
+- I’m currently studying MIS at Hochschule Pforzheim 
+- 📫 How to reach me: bujdeite@hs-pforzheim.de
+- 😄 Matrikelnr: 320140
